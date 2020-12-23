@@ -1,4 +1,5 @@
 # Consolact-Win-Activator
+## DISABLE ANY ANTIVIRUS
 
                                   ConsoleAct Portable
 
